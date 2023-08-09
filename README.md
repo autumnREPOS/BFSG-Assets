@@ -1,2 +1,3 @@
 # BFSG-Assets
-The Battle for Snowglobe Assets
+The official Battle for Snow Globe assets! 
+Credit me if you use them for ANYTHING. or get ready to get a strike!
