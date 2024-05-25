@@ -1,4 +1,6 @@
-# WE ARE BACK IN ACTION!
-As of April 20th, 2024, we have added v12 and v12.1! 
-featuring the all-new artstyle and BRAND new assets!
-With a show like this, who wouldnt want to join!
+# v13 HAS BEEN RELEASED!
+Thats right, the Final edition for the BFSG assets have been released. I did the whole shtick on my
+youtube channel, so you can just read that! thanks
+
+youtube.com/@autumnnn1
+![image](autumn_clipart_recre0001.png)
